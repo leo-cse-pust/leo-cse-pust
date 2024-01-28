@@ -11,7 +11,7 @@ www.facebook.com/marufa.mou0
 www.facebook.com/himukhan11
 
 180104 MD.ABDULLAH IBN NOOR
-facebook.com/ab.a.noor
+www.facebook.com/ab.a.noor
 
 180105 MD.LOKMAN HOSSEN
 www.facebook.com/profile.php?id=100081928952131
